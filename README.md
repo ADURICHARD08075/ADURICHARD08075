@@ -20,4 +20,4 @@ Full-time, contract, freelance and internship work. Remote, or in Lagos.
 
 ### Find me
 
-[LinkedIn](https://www.linkedin.com/in/adu-richard-1491b4370/) · [Behance](https://www.behance.net/adurichard2) · [Dribbble](https://dribbble.com/adu-richard) · [X](https://x.com/AduRichardUX) · [TikTok](https://www.tiktok.com/@adurichard.ux) · [Email](mailto:adurichard08075@gmail.com)
+[LinkedIn](https://www.linkedin.com/in/adurichardux/) · [Behance](https://www.behance.net/adurichard2) · [Dribbble](https://dribbble.com/adu-richard) · [X](https://x.com/AduRichardUX) · [TikTok](https://www.tiktok.com/@adurichard.ux) · [Email](mailto:adurichard08075@gmail.com)
